@@ -8,7 +8,7 @@ Il est la aussi pour faire partager ma plus grande des passions pour les navires
 
 ## Petit +
 
-Le site est disponible pour tous via cette url ^^ = https://les-marines-by-alice.go.yj.fr/
+Le site est disponible pour tous via cette url ^^ = [https://les-marines-by-alice.nodsoft.net/](https://les-marines-by-alice.nodsoft.net//) (thx Sakura ^^)
 
 Mis à jour tout les jours ou tout les 2 jours celon l'avancement des données.
 
